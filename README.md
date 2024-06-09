@@ -8,5 +8,5 @@
 - 💬 Ask me about my journey how I become a programmer
 - 📫 How to reach me: ...
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm a rookie programmer that loves Psychology, Sports, and Music!  
+- ⚡ Fun fact: I speak 4 languages: English, Indonesian, Japanese, and German!   
 -->
